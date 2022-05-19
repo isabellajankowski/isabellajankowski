@@ -1,0 +1,5 @@
+- eu sou isabella jankowski
+- tenho 15 anos
+- trabalho em pet sohp
+- estudo de manha kkkk
+- sou ubandista
